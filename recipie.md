@@ -1,0 +1,1 @@
+Peel skin of potatoes and cut them, put vegetable oil and salt on them, fry them in cooking oil. 

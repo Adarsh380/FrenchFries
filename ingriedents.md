@@ -1,0 +1,1 @@
+Need potato, salt, vegetable oil, cooking oil.
